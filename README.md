@@ -1,2 +1,2 @@
 # goit-markup-hw-01
-İlk Ödevim
+!!!BU İLK ÖDEVİM BAKALIM YAPABİLECEK MİYİZ!!!
